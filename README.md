@@ -1,4 +1,4 @@
-[![tacos](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https://github.com/sou1punK&title=tacos&color=%23a1031b)](https://github.com/sou1punK)
+![](https://komarev.com/ghpvc/?username=sou1punKe&label=tacos&color=6b0000)
 
 
 
