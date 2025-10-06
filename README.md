@@ -1,4 +1,4 @@
-[![Tacos](https://view-counter.tobyhagan.com/?user=sou1punK/tacos&base=a1031b&accent=a1031b&text=ffffff&flat=true)](https://github.com/sou1punK)
+[![](https://view-counter.tobyhagan.com/?user=sou1punK/sou1punK&base=a1031b&accent=a1031b&text=ffffff&flat=true)](https://github.com/sou1punK)
 
 
 while spinal fluid acts as lube, speeding up this vile act
