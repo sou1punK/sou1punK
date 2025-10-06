@@ -1,7 +1,7 @@
 [![Tacos](https://view-counter.tobyhagan.com/?user=sou1punK/tacos&base=a1031b&accent=a1031b&text=ffffff&flat=true)](https://github.com/sou1punK)
 
 
-if you seek vengeace, all you need are your instruments of pain
+while spinal fluid acts as lube, speeding up this vile act
 
 ![coffin](https://github.com/user-attachments/assets/efabe7bb-a281-4e72-94ce-2b0e9416b6a2) ![either_go_to_hell_or_die_trying_blinkie_by_minecr_aft-dc2giiw](https://github.com/user-attachments/assets/700f9458-9a93-46f3-a6e5-e5f604a7fd63) ![bZWkxwk](https://github.com/user-attachments/assets/1a118bc4-3592-4c5f-9536-3d27edf856ae)
 
