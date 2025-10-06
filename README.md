@@ -1,12 +1,19 @@
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=sou1punK)
+
+
+if you seek vengeace, all you need are your instruments of pain
+
+![coffin](https://github.com/user-attachments/assets/efabe7bb-a281-4e72-94ce-2b0e9416b6a2) ![either_go_to_hell_or_die_trying_blinkie_by_minecr_aft-dc2giiw](https://github.com/user-attachments/assets/700f9458-9a93-46f3-a6e5-e5f604a7fd63) ![bZWkxwk](https://github.com/user-attachments/assets/1a118bc4-3592-4c5f-9536-3d27edf856ae)
 
 
 
-there are no fingerprints deep underwater, nothing can tie one to a crime
 
 
-![2628308_6daf8](https://github.com/user-attachments/assets/62159017-7d44-467e-a89a-7e438cbe9f32) ![2732845_d9e55](https://github.com/user-attachments/assets/a18f6964-bac9-4c53-be14-bcc10873b8cb) ![2665844_0cbcb](https://github.com/user-attachments/assets/0182d471-9523-492d-a4a7-4f8f672c60de) ![2716341_bdf09](https://github.com/user-attachments/assets/082f1cce-eccd-4787-baa7-bd31031025aa)
+
+
+
+
+
 
 
 
