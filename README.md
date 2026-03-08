@@ -4,7 +4,7 @@
 
 <p align="center">
  
-  ![Diseño sin título (14)](https://github.com/user-attachments/assets/94d67a27-8627-403e-b9fb-d4748feb7f74)
+<img src="https://github.com/user-attachments/assets/4d0631a0-7999-4fbf-a89f-6ef4359f1678" />
 
 </p>
 
