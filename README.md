@@ -3,8 +3,9 @@
 </p>
 
 <p align="center">
-  <![Uploading ezgif.com-video-to-gif-converter.gif…]()/>
-</p>
+ 
+  ![Diseño sin título (14)](https://github.com/user-attachments/assets/94d67a27-8627-403e-b9fb-d4748feb7f74)
 
+</p>
 
 
