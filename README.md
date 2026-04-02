@@ -3,6 +3,6 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/47e06a3e-595f-4c0c-9067-671ec6596f89" width="400"/>
+  <img src="https://github.com/user-attachments/assets/769cd167-899b-40a3-90c1-c96025ea161d" width="400"/>
 </p>
 
